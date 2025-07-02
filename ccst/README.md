@@ -1,1 +1,1 @@
-
+### Preparation for gaining [Cisco Certified Support Technicians (CCST) Cybersecurity](https://www.netacad.com/resources/program-info/ccst-cybersecurity?courseLang=en-US) certificate is provided by [Junior Cybersecurity Analyst](https://www.netacad.com/career-paths/cybersecurity?courseLang=en-US) Career Path.
